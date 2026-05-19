@@ -1,4 +1,4 @@
-# 
+# rare Adobe Photoshop para PC addons es el mejor Adobe Photoshop para PC addons con simulación de humo y seguimiento de movimiento. Seguro, confiable y optimizado para el máximo
 
 
 
